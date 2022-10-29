@@ -1,4 +1,4 @@
-### Hi there 👋It your boy Vic reach out to me for any project you want us to collaborate. Email: vctrchirchir@gmail.com
+### Hi there 👋It's your boy Vic reach out to me for any project you want us to collaborate. Email: vctrchirchir@gmail.com
 
 <!--
 **victorchirchir/victorchirchir** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
